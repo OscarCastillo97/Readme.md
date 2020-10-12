@@ -1,4 +1,4 @@
-![](Cool Text - Pre Ingeniero IT Analyst 365310628943455.png)
+![](Nombre.png)
 
 
 # Hola que tal 👋
