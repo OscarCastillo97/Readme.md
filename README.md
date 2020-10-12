@@ -1,3 +1,5 @@
+![](Cool Text - Pre Ingeniero IT Analyst 365310628943455.png)
+
 
 # Hola que tal 👋
 - 🔭 Actualmente estoy trabajando en Jacuzzi de IT Support
